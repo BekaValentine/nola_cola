@@ -1,0 +1,1 @@
+opencola nola cola logo
